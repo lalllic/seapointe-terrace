@@ -1,1 +1,1 @@
-# My Personal Website
+# Website for Seapointe Terrace Condominium Association
